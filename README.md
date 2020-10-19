@@ -21,7 +21,7 @@ https://geektv.xyz/winiptv
 For help and info please get in touch with us on:
 
 Telegram:
-t.me/blackboxtvec
+https://t.me/blackboxtvec
 Whatsapp
 https://geektv.xyz/help
 
